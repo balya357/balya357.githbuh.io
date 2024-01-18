@@ -1,1 +1,1 @@
-# balya357.githbuh.io
+# balya357.githuh.io
